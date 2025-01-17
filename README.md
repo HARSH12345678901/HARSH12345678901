@@ -16,6 +16,7 @@
 - 📫 How to reach me **kapshaharsh@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
+<h4 align="right">Linkedin : https://www.linkedin.com/in/harsh-s-3ba83018a?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3BQvnV83AoSkmNHFtpc4h7tw%3D%3D </h4>
 <p align="left">
 </p>
 
